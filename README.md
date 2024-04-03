@@ -1,4 +1,6 @@
 ### maria 👋
 
-![](https://media1.tenor.com/m/fmsSGumIhDoAAAAC/burla-risa.gif)
-![](https://media1.tenor.com/m/6QsWusyw81wAAAAC/anakin-ahsoka-show-anakin-ahsoka-2023.gif)
+![](https://media1.tenor.com/m/4P6wtTYwiKwAAAAC/welcome-beige.gif)
+![](https://media1.tenor.com/m/QXKuxB2MfDIAAAAd/brown-est%C3%A9tica.gif)
+![](https://media1.tenor.com/m/n1uAE7__ao4AAAAC/hello.gif)
+
